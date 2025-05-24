@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on ...
 
-- 📫 How to reach me : dungzes3@gmail.com or connect with me on Linkedln: https://www.linkedin.com/in/tuan-anh-ba07492b9/
+- 📫 How to reach me : tuananh20028686@gmail.com or connect with me on Linkedln: https://www.linkedin.com/in/tuan-anh-ba07492b9/
 
 - 😄 Pronouns: He
 
