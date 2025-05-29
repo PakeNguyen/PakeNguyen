@@ -1,4 +1,4 @@
-### 👋 Hi there, I'm Tuấn Anh (@PakeNguyen)
+### 👋 Hi there, I'm Tuấn Anh 
 
 🎓 Recent graduate in Data Analytics from HUIT (University of Industry, HCMC), with a strong passion for **Artificial Intelligence**, especially in **Computer Vision**.
 
